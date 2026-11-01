@@ -1,0 +1,4 @@
+# Links to Tinkercad
+- Task 1 - https://www.tinkercad.com/things/947VeMdtIca-fantastic-jaban/editel?returnTo=https%3A%2F%2Fwww.tinkercad.com%2Fdashboard&sharecode=6MeZ924VZwbGYxyxM6nsFDBUtDZFb3rvFDg13t1qgVM&sharecode=6MeZ924VZwbGYxyxM6nsFDBUtDZFb3rvFDg13t1qgVM
+- Task 2 - https://www.tinkercad.com/things/jlmvxEJywbM/editel?returnTo=%2Fdashboard&sharecode=VoqF8XZu8BYGfnHzFsPchg-r5N0Kqd9hm4i3aq4OpDU&sharecode=VoqF8XZu8BYGfnHzFsPchg-r5N0Kqd9hm4i3aq4OpDU
+- Task 3 - https://www.tinkercad.com/things/8KsHJjPTMjl/editel?returnTo=%2Fdashboard&sharecode=tCsXrNkqFqA1GkW1nwHYXbIRHYQk8hplKFrvYMUd37w&sharecode=tCsXrNkqFqA1GkW1nwHYXbIRHYQk8hplKFrvYMUd37w

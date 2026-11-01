@@ -1,0 +1,4 @@
+# Links to Tinkercad files
+- Task 1 - https://www.tinkercad.com/things/iYCB3hx2wxc-glorious-migelo-gogo/editel?returnTo=https%3A%2F%2Fwww.tinkercad.com%2Fdashboard&sharecode=opdw_ySN0QKZKYUVoFVuKYIkHLcSAGMupgnwQa1Klmo&sharecode=opdw_ySN0QKZKYUVoFVuKYIkHLcSAGMupgnwQa1Klmo
+- Task 2 - https://www.tinkercad.com/things/85sIPRCi86o/editel?returnTo=%2Fdashboard&sharecode=RTHHyGyo-umftNuwhi2bZCyNVaWrycBYWu-YJuq46zs&sharecode=RTHHyGyo-umftNuwhi2bZCyNVaWrycBYWu-YJuq46zs
+- Task 3 - https://www.tinkercad.com/things/4CuxZ2hppB3/editel?returnTo=%2Fdashboard&sharecode=uFrR2n5Ywd1iIpK8TUfATaKh0MnP4jGIFZjGihd223E&sharecode=uFrR2n5Ywd1iIpK8TUfATaKh0MnP4jGIFZjGihd223E
